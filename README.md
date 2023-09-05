@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @boociil
+- 👋 Hi, I’m @boociil but u can call me yan
 - 👀 I’m interested in python, c, c++, web and others
 - 🌱 I’m currently learning website programming
 
