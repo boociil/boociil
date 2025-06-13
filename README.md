@@ -1,5 +1,5 @@
 Hi,  u can call me yan
-I’m interested in python, c, c++, web programming specially as backend developer.
+i am driven by curiosity and a passion for growth. I consistently explore new technologies and trends to stay ahead in this ever-evolving digital world.
 u can DM on instagram @ryaaaan.r
 
 <!---
